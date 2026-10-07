@@ -1,4 +1,4 @@
-# ▶️ [Watch the demo video on YouTube](YOUTUBE_LINK)
+# ▶️ [Watch the demo video on YouTube](https://youtu.be/5LRg5-4cJ-c)
 
 # Clear Path Home: getting 50,000 Knicks fans home without a crush
 
