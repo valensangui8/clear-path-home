@@ -1,5 +1,5 @@
 # ▶️ [Watch the demo video on YouTube](https://youtu.be/5LRg5-4cJ-c)
-## 🎞️ [Watch in full HD on Google Drive](https://drive.google.com/drive/folders/1-2AtLSlilB72nCLTMP2XvdM_oP_gL5ha?usp=drive_link)
+## 🎞️ [Watch in full HD on Google Drive](https://drive.google.com/file/d/1kf4Bf6HnrVT5OelpiZ6-Gd9X2HAKNMBZ/view)
 
 # Clear Path Home: getting 50,000 Knicks fans home without a crush
 
